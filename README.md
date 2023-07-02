@@ -1,2 +1,3 @@
 # AstralLogger
-Any questions my discord is sinsonly#9705 
+Any questions my discord is Astral#0975
+
